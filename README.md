@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nikjuliahanim993
-- 👀 I’m interested in website building,bot building and else
+- 👀 I’m interested to collaborate and connect with talented people who want to change their life 
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate with any company that want to have website or else
 - 📫 How to reach me? You can email me at nikjuliahanim993@gmail.com
